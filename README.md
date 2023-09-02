@@ -14,7 +14,10 @@
 
 - 💬 Ask me about **python, C++**
 
-- 📫 How to reach me **nancytyagi291104@gmail.com**
+- 📫 How to reach me **www.linkedin.com/in/
+nancy-tyagi29
+
+**
 
 - ⚡ Fun fact **I'm an insatiable bookworm.**
 
